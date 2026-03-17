@@ -1,3 +1,3 @@
 <img src="https://i.pinimg.com/originals/ae/66/87/ae66877572fff870c6db1c70388ffcc7.gif" alt="This may contain: an anime character with green eyes holding his hand up to his face and looking at the camera"/> 
 
-and the croud cheers, but never for me...
+trying to love but told im 'too much'
